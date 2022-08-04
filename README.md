@@ -18,6 +18,8 @@ shit spoofer showcase - https://streamable.com/840131
 
 
 crucial dior dior#0420
-Zorpze#0420
+
+Zorpze#0420 - https://discord.gg/aimbot << Precision, become the best.
+
 hamood bunnies213#0001
-https://discord.gg/aimbot << Precision, become the best.
+
