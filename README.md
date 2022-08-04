@@ -45,8 +45,6 @@ new shit of them lying
 ![unknown (11)](https://user-images.githubusercontent.com/110612389/182859793-9883172e-b0ca-4fa7-859a-c05671214d51.png)
 ![unknown (12)](https://user-images.githubusercontent.com/110612389/182859841-dabba0d6-e36f-401a-8d98-2eced635b20e.png)
 ![unknown (13)](https://user-images.githubusercontent.com/110612389/182859878-8c98706b-fe4c-4abb-a685-08c8baae13f6.png)
+![unknown (16)](https://user-images.githubusercontent.com/110612389/182863390-5e4b6c9f-76e3-4d31-a29b-846c5259d234.png)
 
-reverse exposed arc i guess?
-
-![unknown (15)](https://user-images.githubusercontent.com/110612389/182862080-5f2cb878-d6c6-4098-9f93-a45bd1c36ade.png)
 
