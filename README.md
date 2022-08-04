@@ -6,6 +6,9 @@ selling a spoofer with public drivers passed around more then kezyuis mother
 
 banned us all from the server after exposing then they took down the shit
 
+update - now claiming nex has never tried to sell the spoofer, from enormitys comments about how hes not known the stupid nn fuck and he has said he doesnt care what 
+happens to him, in his announcement in the server he also said "no comments to nex" trying to cover up his little boyfriend
+
 proof in the images
 
 nex discord id - 922187165063057469
@@ -35,4 +38,10 @@ hamood bunnies213#0001
 ![unknown (8)](https://user-images.githubusercontent.com/110612389/182857517-48623b27-c59c-42f7-8af9-c379a63ab316.png)
 ![unknown (9)](https://user-images.githubusercontent.com/110612389/182857560-2d5c20ad-af47-48db-a97e-45811e1269e3.png)
 ![unknown (10)](https://user-images.githubusercontent.com/110612389/182857655-9c78e59d-bbaf-4918-bd02-1464e826835d.png)
+
+new shit of them lying
+
+![unknown (11)](https://user-images.githubusercontent.com/110612389/182859793-9883172e-b0ca-4fa7-859a-c05671214d51.png)
+![unknown (12)](https://user-images.githubusercontent.com/110612389/182859841-dabba0d6-e36f-401a-8d98-2eced635b20e.png)
+![unknown (13)](https://user-images.githubusercontent.com/110612389/182859878-8c98706b-fe4c-4abb-a685-08c8baae13f6.png)
 
