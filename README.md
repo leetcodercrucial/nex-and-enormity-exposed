@@ -4,6 +4,8 @@ nex had messaged dyn asking if he wanted to buy spoofer drived signed by epic kn
 
 selling a spoofer with public drivers passed around more then kezyuis mother
 
+banned us all from the server after exposing then they took down the shit
+
 proof in the images
 
 nex discord id - 922187165063057469
